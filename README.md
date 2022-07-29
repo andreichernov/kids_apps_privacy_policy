@@ -48,7 +48,7 @@ This Privacy Policy is in addition to any terms, conditions or policies agreed t
 
 ---
 
-This privacy policy was last updated on June 26, 2021. This privacy policy may change from time to time.
+This privacy policy was last updated on July 29, 2022. This privacy policy may change from time to time.
 I recommend you periodically check this document to be aware of the changes.
 
 If you have any questions or concerns about my privacy policies, please contact me at:
